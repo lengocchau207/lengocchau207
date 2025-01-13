@@ -41,15 +41,12 @@ DAKdesign tạo ra các chiến dịch quảng cáo hiệu quả trên các nề
 
 ### **Thông Tin Liên Hệ:**
 
-- **Địa chỉ:** 219 Phan Chu Trinh, Buôn Ma Thuột, Đắk Lắk Province, 630000
+- **Địa chỉ:** 59 Nguyễn Trường Tộ, Buôn Ma Thuột, Đắk Lắk Province, 630000
 - **Số điện thoại:** 094 394 31 79
-- **Website:** [dakdesign.net](https://www.dakdesign.net/)
+- **Website:** [Thiết kế Web Đắk LắkLắk](https://www.dakdesign.net/)
 
 ---
 
 **DAKdesign** cam kết mang lại các giải pháp website độc đáo và tùy chỉnh phù hợp với nhu cầu của từng khách hàng, với chất lượng dịch vụ tốt nhất và giá cả hợp lý. Hãy chọn DAKdesign để cùng nhau xây dựng một tương lai số hóa đỉnh cao cho doanh nghiệp của bạn.
 
 ![Ảnh khách hàng hài lòng](https://www.dakdesign.net/wp-content/uploads/2025/01/thuc-tap2-768x1024.jpg)
-
----
-
